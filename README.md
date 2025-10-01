@@ -22,6 +22,8 @@ I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://64.media.tumblr.com/84f0
     Please read through my rentry's thoroughly if you'd like to be friends !!!
     
     🌙 Ontab and willing to INT ! | ⛔ Afk or offtab | 💬 mainly looking for chat !!
+
+    I Block freely, so please be nice and don't be rude or weird.
 </small>
 
 <small> ![](https://64.media.tumblr.com/3f7bcb37a631eec1a1a502a6a1a2b0d2/47629c4b3120d5eb-9a/s75x75_c1/276322a1df416416f31df56c3541a060e857769f.gifv) </small>
