@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
+![](https://pixelsafari.neocities.org/dividers/more/bunny2.png)
 
   
 
@@ -9,11 +9,11 @@
 
 
 
-### INFO <img align="Left" width="40%" src="https://64.media.tumblr.com/ec4d5ad7de79b9e70f65f6fccac3c709/902670c41956764e-91/s100x200/61572c1edb2fde732e189fb902df302a53934153.pnj">
+### INFO <img align="Left" width="40%" src="https://64.media.tumblr.com/9fa067a288c7f49c53bc8a98459c949d/d06d46ef0f00d59b-14/s540x810/78760f27699c85ad67cfe5e5b4b03b81eb87b11e.pnj">
 
 
-![](https://64.media.tumblr.com/6a61e777ded58f0bcc9f863993bbe4df/db7ce6708c01e3ab-8a/s75x75_c1/5b2d1d7f7bcc713a858d8c15a115ecb8727589ab.gifv) 
-I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv)
+![](https://i.postimg.cc/sfB9xQ4N/614-F6-A70-AE2-F-42-BE-B096-985346-E24-E20.gif) 
+I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://pixelsafari.neocities.org/favicon/animals/rodent/hamster4.gif)
 
   <small>
 
@@ -26,11 +26,11 @@ I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://64.media.tumblr.com/84f0
     I Block freely, so please be nice and don't be rude or weird.
 </small>
 
-<small> ![](https://64.media.tumblr.com/3f7bcb37a631eec1a1a502a6a1a2b0d2/47629c4b3120d5eb-9a/s75x75_c1/276322a1df416416f31df56c3541a060e857769f.gifv) </small>
+<small> ![](https://pixelsafari.neocities.org/favicon/food/sweet/cookie17.gif) </small>
 ᅟ
 
 
-![](https://64.media.tumblr.com/e036e16b7246aa9c06712484de96761a/5c946af0eadf9488-bb/s2048x3072/0cdcc9dbea4f283ee89303fa865557db593ef82f.pnj)
+![](https://pixelsafari.neocities.org/dividers/more/bunny2.png)
 
 
 
