@@ -1,19 +1,20 @@
 <div align="center">
 
 
-![](https://pixelsafari.neocities.org/dividers/more/bunny2.png)
+![divider](https://64.media.tumblr.com/0ebd9dcfc92c4aeb891cbc8e140cf099/b3d328cbd1a500dd-c7/s400x600/da7b7c7d036dc61c0034dbcc3f583c6dbe58b53b.pnj)
 
-  
-
-
+  ![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=898681)
 
 
+[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=300&color=786a64&center=true&vCenter=true&width=600&lines=Your+dog+has+been+drinking.+.;He's+Drinking+Alot.+.+.;your+dog+says+he+loves+me.;But+he+goes+cruising+for+Boys+.+.+.)](https://git.io/typing-svg)
 
-### INFO <img align="Left" width="40%" src="https://64.media.tumblr.com/9fa067a288c7f49c53bc8a98459c949d/d06d46ef0f00d59b-14/s540x810/78760f27699c85ad67cfe5e5b4b03b81eb87b11e.pnj">
+`lyrics : dogsong by ruby throat`
+
+### INFO <img align="left" width="29%" src="https://64.media.tumblr.com/e7b77485c48d19f27511e623bf1af4c5/6d00bc1d16ed6297-32/s1280x1920/2148a5f7d2aab7fe7dcc3392ffc3298778de43e8.pnj">
 
 
-![](https://i.postimg.cc/sfB9xQ4N/614-F6-A70-AE2-F-42-BE-B096-985346-E24-E20.gif) 
-I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://pixelsafari.neocities.org/favicon/animals/rodent/hamster4.gif)
+![](https://pixelsafari.neocities.org/favicon/animals/deer.gif) 
+I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://i.postimg.cc/13491SQw/IMG-9950.gif)
 
   <small>
 
@@ -26,11 +27,11 @@ I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://pixelsafari.neocities.or
     I Block freely, so please be nice and don't be rude or weird.
 </small>
 
-<small> ![](https://pixelsafari.neocities.org/favicon/food/sweet/cookie17.gif) </small>
+<small> ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/green/IMG_4308.gif) </small>
 ᅟ
 
 
-![](https://pixelsafari.neocities.org/dividers/more/bunny2.png)
+![divider](https://64.media.tumblr.com/0ebd9dcfc92c4aeb891cbc8e140cf099/b3d328cbd1a500dd-c7/s400x600/da7b7c7d036dc61c0034dbcc3f583c6dbe58b53b.pnj)
 
 
 
