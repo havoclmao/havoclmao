@@ -1,20 +1,20 @@
 <div align="center">
 
 
-![divider](https://64.media.tumblr.com/0ebd9dcfc92c4aeb891cbc8e140cf099/b3d328cbd1a500dd-c7/s400x600/da7b7c7d036dc61c0034dbcc3f583c6dbe58b53b.pnj)
+![divider](https://i.postimg.cc/sDXv3tyb/IMG-8973.gif)
 
-  ![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=898681)
+  ![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=6b5e57)
 
 
-[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=300&color=786a64&center=true&vCenter=true&width=600&lines=Your+dog+has+been+drinking.+.;He's+Drinking+Alot.+.+.;your+dog+says+he+loves+me.;But+he+goes+cruising+for+Boys+.+.+.)](https://git.io/typing-svg)
+[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=300&color=8c7f79&center=true&vCenter=true&width=600&lines=Your+dog+has+been+drinking.+.;He's+Drinking+Alot.+.+.;your+dog+says+he+loves+me.;But+he+goes+cruising+for+Boys+.+.+.)](https://git.io/typing-svg)
 
 `lyrics : dogsong by ruby throat`
 
-### INFO <img align="left" width="29%" src="https://64.media.tumblr.com/e7b77485c48d19f27511e623bf1af4c5/6d00bc1d16ed6297-32/s1280x1920/2148a5f7d2aab7fe7dcc3392ffc3298778de43e8.pnj">
+### INFO <img align="left" width="29%" src="https://64.media.tumblr.com/fbf60a11417fafa68c2ee1ef299dc5ae/a747b2285ac295be-b5/s500x750/de86596ff2ffca2779368fcb34635f06a5f06df4.pnj">
 
 
-![](https://pixelsafari.neocities.org/favicon/animals/deer.gif) 
-I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://i.postimg.cc/13491SQw/IMG-9950.gif)
+![](https://i.postimg.cc/kg3wGJ0k/IMG_4152.gif) 
+I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://i.postimg.cc/kGPjVCG8/C917-CA82-18-CC-41-D3-A06-F-29-CBD5854257.gif)
 
   <small>
 
@@ -27,11 +27,11 @@ I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://i.postimg.cc/13491SQw/IM
     I Block freely, so please be nice and don't be rude or weird.
 </small>
 
-<small> ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/green/IMG_4308.gif) </small>
+<small> ![](https://i.postimg.cc/1Xysy196/IMG_4202.gif) </small>
 ᅟ
 
 
-![divider](https://64.media.tumblr.com/0ebd9dcfc92c4aeb891cbc8e140cf099/b3d328cbd1a500dd-c7/s400x600/da7b7c7d036dc61c0034dbcc3f583c6dbe58b53b.pnj)
+![divider](https://i.postimg.cc/sDXv3tyb/IMG-8973.gif)
 
 
 
