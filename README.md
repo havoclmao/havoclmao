@@ -1,38 +1,32 @@
 <div align="center">
 
 
-![divider](https://i.postimg.cc/sDXv3tyb/IMG-8973.gif)
+![divider](https://i.postimg.cc/wv08jxdN/IMG_8842.gif)
 
-  ![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=6b5e57)
-
-
-[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=300&color=8c7f79&center=true&vCenter=true&width=600&lines=Your+dog+has+been+drinking.+.;He's+Drinking+Alot.+.+.;your+dog+says+he+loves+me.;But+he+goes+cruising+for+Boys+.+.+.)](https://git.io/typing-svg)
-
-`lyrics : dogsong by ruby throat`
-
-### INFO <img align="left" width="29%" src="https://64.media.tumblr.com/fbf60a11417fafa68c2ee1ef299dc5ae/a747b2285ac295be-b5/s500x750/de86596ff2ffca2779368fcb34635f06a5f06df4.pnj">
+![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=af7a8d)
 
 
-![](https://i.postimg.cc/kg3wGJ0k/IMG_4152.gif) 
-I go by HAVOC or Hope !! but mainly HAVOC.. ![](https://i.postimg.cc/kGPjVCG8/C917-CA82-18-CC-41-D3-A06-F-29-CBD5854257.gif)
+
+###  <img align="left" width="30%" src="https://64.media.tumblr.com/0258825cdb78b087c95343a40aed8cb2/725f4e28299e4413-be/s250x400/1264dd0a156aa4238dd5306434b3ac10aa464694.pnj">
+
+
+![](https://64.media.tumblr.com/b76f86a4ba263fc61231276ee8bf9aae/069a8b3f7aab83fd-25/s75x75_c1/9c0df3c49ee2211eea60d495e7fbd94b7843d572.gifv) 
+[strawpage](https://havoclmaok.straw.page) ㅤ𓈒⠀⠀[comms](https://havoclmao.carrd.co/)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta](https://www.instagram.com/havoc_x09/?next=%2F)ㅤ𓈒⠀⠀[rentry](https://rentry.co/havoclmaomain) 
+![](https://i.imgur.com/cDLFyw7.gif)
 
   <small>
 
-    Im pretty friendly and approachable ! I believe in being nice to everyone!!
     
-    Please read through my rentry's thoroughly if you'd like to be friends !!!
-    
-    🌙 Ontab and willing to INT ! | ⛔ Afk or offtab | 💬 mainly looking for chat !!
-
-    I Block freely, so please be nice and don't be rude or weird.
 </small>
 
-<small> ![](https://i.postimg.cc/1Xysy196/IMG_4202.gif) </small>
+<small> ![](https://i.postimg.cc/W1YcGTR6/IMG_4464.gif) </small>
 ᅟ
 
 
-![divider](https://i.postimg.cc/sDXv3tyb/IMG-8973.gif)
 
+
+
+![divider](https://i.postimg.cc/wv08jxdN/IMG_8842.gif)
 
 
 <div align="center">
