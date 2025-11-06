@@ -14,6 +14,8 @@
 [strawpage](https://havoclmaok.straw.page) ㅤ𓈒⠀⠀[comms](https://havoclmao.carrd.co/)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta](https://www.instagram.com/havoc_x09/?next=%2F)ㅤ𓈒⠀⠀[rentry](https://rentry.co/havoclmaomain) 
 ![](https://i.imgur.com/cDLFyw7.gif)
 
+![](https://i.postimg.cc/XJyFgjpR/IMG_4666.gif) [characters](https://vgen.co/Havoclmao) ![](https://i.postimg.cc/FR9zYh0b/IMG_4528.gif)
+
   <small>
 
     
