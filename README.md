@@ -1,34 +1,34 @@
 <div align="center">
 
 
-![divider](https://i.postimg.cc/wv08jxdN/IMG_8842.gif)
+![divider](https://i.postimg.cc/23pV27Xr/IMG_8623.png)
 
-![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=af7a8d)
-
-
-
-###  <img align="left" width="30%" src="https://64.media.tumblr.com/0258825cdb78b087c95343a40aed8cb2/725f4e28299e4413-be/s250x400/1264dd0a156aa4238dd5306434b3ac10aa464694.pnj">
+![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=556b2f)
 
 
-![](https://64.media.tumblr.com/b76f86a4ba263fc61231276ee8bf9aae/069a8b3f7aab83fd-25/s75x75_c1/9c0df3c49ee2211eea60d495e7fbd94b7843d572.gifv) 
-[strawpage](https://havoclmaok.straw.page) ㅤ𓈒⠀⠀[comms](https://havoclmao.carrd.co/)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[rentry](https://rentry.co/havoclmaomain) 
-![](https://i.imgur.com/cDLFyw7.gif)
 
-![](https://i.postimg.cc/XJyFgjpR/IMG_4666.gif) [characters](https://vgen.co/Havoclmao) ![](https://i.postimg.cc/FR9zYh0b/IMG_4528.gif)
+###  <img align="left" width="30%" src="https://i.postimg.cc/kXQdD5cd/Untitled19-20251111134300.webp">
+
+
+![](https://files.catbox.moe/hhfawr.gif) 
+[strawpage](https://havoclmaok.straw.page) ㅤ𓈒⠀⠀[comms](https://havoclmao.carrd.co/)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[rentry](https://rentry.co/lawrn) 
+![](https://files.catbox.moe/7whiay.gif)
+
+![](https://files.catbox.moe/qh034y.gif) [characters](https://vgen.co/Havoclmao) ![]()
 
   <small>
 
     
 </small>
 
-<small> ![](https://i.postimg.cc/W1YcGTR6/IMG_4464.gif) </small>
+<small> ![](https://64.media.tumblr.com/082aed56603f6abad7d95dd6f0f3b04c/57912d78a7fe6b7f-ae/s75x75_c1/861cab37092abaddb7deab2da5fbe4ef366e6973.gifv) </small>
 ᅟ
 
 
 
 
 
-![divider](https://i.postimg.cc/wv08jxdN/IMG_8842.gif)
+![divider](https://i.postimg.cc/23pV27Xr/IMG_8623.png)
 
 
 <div align="center">
