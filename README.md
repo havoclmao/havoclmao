@@ -3,7 +3,7 @@
 
 ![divider](https://i.postimg.cc/23pV27Xr/IMG_8623.png)
 
-![profileviews](https://komarev.com/ghpvc/?username=havoclmao&color=556b2f)
+<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=556b2f&style=plastic&label=🌿&abreviated=true">
 
 
 
