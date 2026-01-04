@@ -23,7 +23,7 @@
 
 <small> ![](https://64.media.tumblr.com/082aed56603f6abad7d95dd6f0f3b04c/57912d78a7fe6b7f-ae/s75x75_c1/861cab37092abaddb7deab2da5fbe4ef366e6973.gifv) </small>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&mode=dark&bar_color=bb1b1b&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=786745&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&redirect=true)
 
    <div align="center">
 <details>
