@@ -40,18 +40,9 @@
   
 **easy read info about me !**
 
-`I go by Havoc Or Hope, but Havoc is just preferred.
-I also go by She/her pronouns only please.
-I speak both English and deutsche.`
+`Info coming soon !`
 
-
-`Half the time I'm offtab, drawing or afk ! so please
-whisp me if needed/wanted. I likely answer faster that way.`
-
-
-`INT : cod , creepypasta , yandere horror visual novel games ,happy tree friends.`
-
-<img align="center" width="10%" src="https://64.media.tumblr.com/db35ed8accf8b9b60c93d54108c3a9ba/de735af3eec47111-45/s1280x1920/fe058edcf468c972dcb4976f437ec5c14f194799.jpg">  
+<img align="center" width="10%" src="https://64.media.tumblr.com/906c3c1e9d9e863bab4a37ddc240b9e6/fe5ccfcf93c3c1ff-7f/s250x400/a17c69de211fd3b19f4593d9869fb2083ad4c415.pnj">  
 
 ![divider](https://64.media.tumblr.com/b06abe523f260351891e84a9ed27badb/2848cc8418ebcc2d-a1/s540x810/d460a6b843d62dee59f8d280a9b2e41754396993.pnj)
 
