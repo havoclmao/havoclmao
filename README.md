@@ -1,9 +1,9 @@
 <div align="center">
 
 
-![divider](https://64.media.tumblr.com/0ebd9dcfc92c4aeb891cbc8e140cf099/b3d328cbd1a500dd-c7/s540x810/2ddde98586dbdc3aeae4c97d15be6b6352ab96f4.pnj)
+![divider](https://64.media.tumblr.com/74646c78e3f09e60d5c69e9ba493bd72/6ecc124072580c37-d2/s540x810/c9be576b9cfc270d153a336e4bcf25d0ac70f40d.pnj)
 
-<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=72635A&style=plastic&label=🩷&abreviated=true">
+<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=ca8837&style=plastic&label=🍀&abreviated=true">
 
 
 
@@ -42,9 +42,9 @@
 
 `Info coming soon !`
 
-<img align="center" width="10%" src="https://64.media.tumblr.com/deabd7498fab0b1a0c3cef1476105802/74876e504c5c7cde-e6/s100x200/a919e60fe2da5c73822fd3f7077417d778b4bfa4.pnj">  
+<img align="center" width="10%" src="https://64.media.tumblr.com/f65f6e65b3b2f09bb967b78259e07426/125ef7c09c4b6808-52/s100x200/9379eb076b536fdf823f3246eeefec3dcc99b799.pnj">  
 
-![divider](https://64.media.tumblr.com/0ebd9dcfc92c4aeb891cbc8e140cf099/b3d328cbd1a500dd-c7/s540x810/2ddde98586dbdc3aeae4c97d15be6b6352ab96f4.pnj)
+![divider](https://64.media.tumblr.com/74646c78e3f09e60d5c69e9ba493bd72/6ecc124072580c37-d2/s540x810/c9be576b9cfc270d153a336e4bcf25d0ac70f40d.pnj)
 
 <div align="center">
 
