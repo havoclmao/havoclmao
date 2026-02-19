@@ -1,20 +1,20 @@
 <div align="center">
 
 
-![divider](https://64.media.tumblr.com/74646c78e3f09e60d5c69e9ba493bd72/6ecc124072580c37-d2/s540x810/c9be576b9cfc270d153a336e4bcf25d0ac70f40d.pnj)
+![divider](https://files.catbox.moe/eb5yha.png)
 
-<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=ca8837&style=plastic&label=🍀&abreviated=true">
-
-
-
-###  <img align="left" width="30%" src="https://64.media.tumblr.com/1baf5810dc4e9b7e3b569f8f706028da/4b7fe91744be018c-dc/s1280x1920/5d2f1a4ae0fff5b93159256dc9ccf239f0d36365.pnj">
+<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=cfaeb9&style=plastic&label=🍬&abreviated=true">
 
 
-![pixel](https://64.media.tumblr.com/8c7e5e065c14d377bb6ba485ac7dcfb2/1e41c4e34e445feb-b1/s75x75_c1/cd4c57f4bc865f84409576ae3c5f7d512e064cd9.gifv) 
+
+###  <img align="left" width="30%" src="https://64.media.tumblr.com/71d40019fc6c4caafd9defcf04e6eedc/3e0ba93e21f31201-f1/s250x400/be9a39e279fb489545285d42a93b423369b1f666.pnj">
+
+
+![pixel](https://files.catbox.moe/p5rk6c.gif) 
 [strawpage](https://havoclmaoo.straw.page) ㅤ𓈒⠀⠀[comms](https://forms.gle/YRXEHXZ4PJgsNrE97)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[Rentry](https://rentry.co/havocspacee) ㅤ𓈒⠀⠀[Telegram](https://t.me/havoclmao)
-![pixel](https://64.media.tumblr.com/7535215cf78cafb7fe2eb2924c364969/fd24d356dee656fb-3c/s75x75_c1/581414c80a6e3f50a63970272a7e04d454033a93.gifv)
+![pixel](https://files.catbox.moe/v0l286.gif)
 
-![pixel](https://64.media.tumblr.com/bdbf9e39188138a17057fe063b35d77c/fd24d356dee656fb-f4/s75x75_c1/2f5969d45545af00bcf1b7f1867dc5d8edc2c25b.gifv) [carrd](https://havoclmao09.carrd.co) ![]()
+![pixel](https://64.media.tumblr.com/81f1a00c072ee537fe0ea4466f675306/1d7dff280dffe7e9-d3/s75x75_c1/2eef4b2bcb4d3495f5a8e88ff3f84b47d1f9b908.gifv) [carrd](https://havoclmao09.carrd.co) ![]()
 
   <small>
 
@@ -42,9 +42,9 @@
 
 `Info coming soon !`
 
-<img align="center" width="10%" src="https://64.media.tumblr.com/f65f6e65b3b2f09bb967b78259e07426/125ef7c09c4b6808-52/s100x200/9379eb076b536fdf823f3246eeefec3dcc99b799.pnj">  
+<img align="center" width="10%" src="https://64.media.tumblr.com/4c78004e2d7d5a1d56b62917ff14165d/32521d369f83f912-f3/s100x200/a4a1c6fddefc0a82a4aeffe71c055bfc9a689435.pnj">  
 
-![divider](https://64.media.tumblr.com/74646c78e3f09e60d5c69e9ba493bd72/6ecc124072580c37-d2/s540x810/c9be576b9cfc270d153a336e4bcf25d0ac70f40d.pnj)
+![divider](https://files.catbox.moe/eb5yha.png)
 
 <div align="center">
 
