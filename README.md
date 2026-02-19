@@ -11,7 +11,7 @@
 
 
 ![pixel](https://64.media.tumblr.com/8c7e5e065c14d377bb6ba485ac7dcfb2/1e41c4e34e445feb-b1/s75x75_c1/cd4c57f4bc865f84409576ae3c5f7d512e064cd9.gifv) 
-[strawpage](https://havoclmaoo.straw.page) ㅤ𓈒⠀⠀[comms](https://forms.gle/YRXEHXZ4PJgsNrE97)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀ ㅤ𓈒⠀⠀[Telegram](https://t.me/havoclmao)
+[strawpage](https://havoclmaoo.straw.page) ㅤ𓈒⠀⠀[comms](https://forms.gle/YRXEHXZ4PJgsNrE97)ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[Rentry](https://rentry.co/havocspacee) ㅤ𓈒⠀⠀[Telegram](https://t.me/havoclmao)
 ![pixel](https://64.media.tumblr.com/7535215cf78cafb7fe2eb2924c364969/fd24d356dee656fb-3c/s75x75_c1/581414c80a6e3f50a63970272a7e04d454033a93.gifv)
 
 ![pixel](https://64.media.tumblr.com/bdbf9e39188138a17057fe063b35d77c/fd24d356dee656fb-f4/s75x75_c1/2f5969d45545af00bcf1b7f1867dc5d8edc2c25b.gifv) [carrd](https://havoclmao09.carrd.co) ![]()
