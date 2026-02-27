@@ -7,7 +7,7 @@
 
 
 
-###  <img align="left" width="30%" src="https://64.media.tumblr.com/71d40019fc6c4caafd9defcf04e6eedc/3e0ba93e21f31201-f1/s250x400/be9a39e279fb489545285d42a93b423369b1f666.pnj">
+###  <img align="left" width="30%" src="https://64.media.tumblr.com/1fb15d13e5b1ec6b985fc8a52153b862/e421e07945a50adc-58/s1280x1920/5f48ce1ca252589ccdd4baedbc901b780fd9a87a.pnj">
 
 
 ![pixel](https://files.catbox.moe/p5rk6c.gif) 
@@ -40,7 +40,19 @@
   
 **easy read info about me !**
 
-`Info coming soon !`
+`Havoc or hope works either way !
+She/her and bi.
+german + american
+16 . march 27th !`
+
+**Pt info :**
+
+`away idle stat : online, idm interacting ^_^`
+`busy stat : afk, ot, busy ect`
+
+`cuddles, crowns and compiments are always accepted whenever <3
+i don't bite i promise, im just shy!`
+
 
 <img align="center" width="10%" src="https://64.media.tumblr.com/4c78004e2d7d5a1d56b62917ff14165d/32521d369f83f912-f3/s100x200/a4a1c6fddefc0a82a4aeffe71c055bfc9a689435.pnj">  
 
