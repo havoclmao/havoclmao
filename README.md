@@ -41,8 +41,8 @@
 **easy read info about me !**
 
 `Havoc or hope works either way !
-She/her and bi.
-german + american
+She/her .
+german + american ,
 17 . march 27th !`
 
 **Pt info :**
