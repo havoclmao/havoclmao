@@ -11,7 +11,7 @@
 
 
 ![pixel](https://files.catbox.moe/p5rk6c.gif) 
- ㅤ𓈒⠀⠀ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[Rentry](https://rentry.co/havocspacee) ㅤ𓈒⠀⠀
+ ㅤ𓈒⠀⠀ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[Strawpage](https://havocssweetspot.straw.page) ㅤ𓈒⠀⠀
 ![pixel](https://files.catbox.moe/v0l286.gif)
 
 ![pixel](https://64.media.tumblr.com/81f1a00c072ee537fe0ea4466f675306/1d7dff280dffe7e9-d3/s75x75_c1/2eef4b2bcb4d3495f5a8e88ff3f84b47d1f9b908.gifv) ![]()
