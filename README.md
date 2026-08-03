@@ -23,7 +23,7 @@
 
 <small> ![]() </small>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=786745&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&hide_remaster=false&bar_color=e1bcc5&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31un7xqvceyti2hzno5zaxv43aci&redirect=true)
 
    <div align="center">
 <details>
