@@ -1,20 +1,20 @@
 <div align="center">
 
 
-![divider](https://files.catbox.moe/eb5yha.png)
+![divider](https://files.catbox.moe/mrdv5i.png)
 
-<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=cfaeb9&style=plastic&label=🍬&abreviated=true">
-
-
-
-###  <img align="left" width="30%" src="https://64.media.tumblr.com/1fb15d13e5b1ec6b985fc8a52153b862/e421e07945a50adc-58/s1280x1920/5f48ce1ca252589ccdd4baedbc901b780fd9a87a.pnj">
+<img src="https://komarev.com/ghpvc/?username=havoclmao-username&color=d0bfe9&style=plastic&label=🪽&abreviated=true">
 
 
-![pixel](https://files.catbox.moe/p5rk6c.gif) 
+
+###  <img align="left" width="30%" src="https://64.media.tumblr.com/fd9888cfb815de61d21c516a7079b8df/77698de0766b45be-43/s2048x3072/fdf4942928239db29b2cf806ecbcce5fa9ea80dc.pnj">
+
+
+![pixel](https://files.catbox.moe/v862p0.gif) 
  ㅤ𓈒⠀⠀ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[Strawpage](https://havocssweetspot.straw.page) ㅤ𓈒⠀⠀
-![pixel](https://files.catbox.moe/v0l286.gif)
+![pixel](https://files.catbox.moe/t1lurs.gif)
 
-![pixel](https://64.media.tumblr.com/81f1a00c072ee537fe0ea4466f675306/1d7dff280dffe7e9-d3/s75x75_c1/2eef4b2bcb4d3495f5a8e88ff3f84b47d1f9b908.gifv) ![]()
+![pixel](https://files.catbox.moe/9iq1ea.gif) ![]()
 
   <small>
 
@@ -54,9 +54,9 @@ german + american ,
 i don't bite i promise, im just shy!`
 
 
-<img align="center" width="10%" src="https://64.media.tumblr.com/4c78004e2d7d5a1d56b62917ff14165d/32521d369f83f912-f3/s100x200/a4a1c6fddefc0a82a4aeffe71c055bfc9a689435.pnj">  
+<img align="center" width="10%" src="https://64.media.tumblr.com/f56081d89caf7eb83f2c402d43f83eaf/cda453196a05f6c5-83/s1280x1920/052e4a0c6f8698a3f7f3773b03b354cae7eb1091.pnj">  
 
-![divider](https://files.catbox.moe/eb5yha.png)
+![divider](https://files.catbox.moe/mrdv5i.png)
 
 <div align="center">
 
