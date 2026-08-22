@@ -11,7 +11,7 @@
 
 
 ![pixel](https://files.catbox.moe/v862p0.gif) 
- ㅤ𓈒⠀⠀ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[Strawpage](https://havocssweetspot.straw.page) ㅤ𓈒⠀⠀
+ ㅤ𓈒⠀⠀ㅤ𓈒⠀⠀[ata](https://havocc.atabook.org/)ㅤ𓈒⠀⠀[insta/art](https://www.instagram.com/havoclmao_/?next=%2F)ㅤ𓈒⠀⠀[info about me!](https://nicoleshalo.carrd.co/) ㅤ𓈒⠀⠀
 ![pixel](https://files.catbox.moe/t1lurs.gif)
 
 ![pixel](https://files.catbox.moe/9iq1ea.gif) ![]()
