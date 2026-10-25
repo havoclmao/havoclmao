@@ -40,22 +40,12 @@
 <p align="center" dir="auto">
   
 ***
-  
-**easy read info about me !**
-
-`Havoc , hope or Usahana works either way !
-She/her .
-german + american ,
-17 . march 27th !`
-
+ 
 **Pt info :**
 
-`away idle stat : online, idm interacting ^_^`
-`busy stat : afk, ot, busy ect`
+`cuddles, crowns and compiments are always accepted whenever <3`
 
-`cuddles, crowns and compiments are always accepted whenever <3
-i don't bite i promise, im just shy!`
-
+`No dni, I'll block you if I don't feel comfortable.`
 
 <img align="center" width="10%" src="https://64.media.tumblr.com/ffb4d5174d26aff11af09348070439b5/23de9e5587395e8c-52/s100x200/7fc3651a917f98f02b789105fdc1a0b6f5e6476f.gifv">  
 
